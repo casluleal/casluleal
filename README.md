@@ -9,6 +9,9 @@ I'm Lucas, a Data Analyst with 4 years of experience, passionate technology, dat
 
 ---
 
+![20250624_151427_3](https://github.com/user-attachments/assets/d637e90b-885a-465d-af39-c7a2ec66fc2c)
+
+
 Feel free to explore my projects and connect with me!
 
 📫 You can connect with me on:
